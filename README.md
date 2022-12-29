@@ -1,5 +1,5 @@
 
-# Hi I'm AmorMz 👋
+# Hi I'm amormz 👋
 
 
 邮箱: amormz@foxmail.com
