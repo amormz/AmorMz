@@ -2,4 +2,4 @@
 # Hi I'm amormz 👋
 
 
-邮箱: amormz@foxmail.com
+Email: amormz@foxmail.com
